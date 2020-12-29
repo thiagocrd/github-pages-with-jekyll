@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Bem-vindos!
 
-I'm glad you are here. I plan to talk about ...
+Aqui só tem conteúdo de qualidade :)
